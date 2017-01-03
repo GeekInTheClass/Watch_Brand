@@ -27,9 +27,15 @@
 > <img src=http://cafefiles.naver.net/20110916_41/djawhdls_1316144023192xmKWR_jpg/c3d61_djawhdls.jpg
 스위스의 시계 브랜드.>
 
-HUBLOT는 호블로위블로라고 발음하며[1][2]그 의미는 프랑스어로 옛 범선의 현창(창문틀)을 의미하는데 실제로 위블로의 모든 시계들의 베젤부분이 현창모양과 비슷하다. 
+HUBLOT는 위블로라고 발음하며 그 의미는 프랑스어로 옛 범선의 현창(창문틀)을 의미하는데 실제로 위블로의 모든 시계들의 베젤부분이 현창모양과 비슷하다. 
 
 
 ### 3. CASIO
 > <img src=http://blogfiles5.naver.net/20131018_85/wass9x_1382085044597uaJgf_JPEG/%B1%BA%C0%CE%BD%C3%B0%E8.jpg>
+
+군인은 카시오!
+카시오는 군인!
+
+> <img src = http://imgnews.naver.com/image/117/2017/01/03/201701021632859019_2_99_20170103070011.jpg>
+이머리 어때요?
 

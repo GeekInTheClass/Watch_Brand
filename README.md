@@ -33,3 +33,7 @@ HUBLOT는 호블로위블로라고 발음하며[1][2]그 의미는 프랑스어�
 ### 3. CASIO
 > <img src=http://blogfiles5.naver.net/20131018_85/wass9x_1382085044597uaJgf_JPEG/%B1%BA%C0%CE%BD%C3%B0%E8.jpg>
 
+### 4. SWATCH
+> <img src=https://lh3.googleusercontent.com/-uDAEeBtuL1A/VYe9hv_exoI/AAAAAAAABp8/z_QK2fZNX6UJF3J0U7r9u1Hj6eQjWRU5gCHM/s1024/Swatch%2BFaces2015_Exhibition%2BJune_Sigrid%2BCalon%25288%2529_Press.jpg>
+
+
